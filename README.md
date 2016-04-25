@@ -1,2 +1,2 @@
 # W.A.T.E.R.S.
-We All Track Earth's Rising Sea Levels.
+We All Track Earth's Rising Sea Levels
